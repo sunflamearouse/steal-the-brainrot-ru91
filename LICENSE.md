@@ -1,4 +1,4 @@
-
+updated steal the brainrot base Script offers the most advanced steal the brainrot base Script, with silent aim and fly. Perfect for dominating any
 
 
 
